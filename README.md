@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @adityarajshekhawat
 - 👀 I’m interested in exploring new ideas and technology 
-- 🌱 I’m currently doing my Bachelor's in Technology (BTech) with majors in CSE
 - 💞️ I’m looking to collaborate with people to work on new technologies and new ideas  
 - 📫 you can reachout via-
 - Linkdin - www.linkedin.com/in/Aditya-Raj-Shekhawat
